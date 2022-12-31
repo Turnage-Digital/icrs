@@ -1,2 +1,2 @@
 # icrs
-I can't remember... stuff 🤔
+I can't remember... stuff. 🤔
